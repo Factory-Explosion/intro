@@ -1,6 +1,8 @@
-img width="500" height="290" alt="Untitled547_20261106230241" src="https://github.com/user-attachments/assets/c7878765-7424-4584-8bc2-3894a021b0ce" />
+<img width="500" height="290" alt="Untitled547_20261106230241" src="https://github.com/user-attachments/assets/792a62d6-4a05-4049-bc97-27676d533bc7" />
 
-<img width="338" height="42" alt="IMG_5614" src="https://github.com/user-attachments/assets/3f17c29a-6da7-491e-9699-5124bf8817e8" />
+
+<img width="338" height="42" alt="IMG_5614" src="https://github.com/user-attachments/assets/8cd5613e-d87c-4eea-8cdc-7019c97b29b2" />
+
 
 # ${{\color{47B3A8}\normalsize{\textsf{✦. αвσυт мє.}}}}$
 
@@ -12,7 +14,8 @@ ${{\color{47B3A8}\normalsize{\textsf{ɖissɔciatiʋɛ iɖɛŋtitɣ ɖisɔrɖɛr 
 
 ${{\color{47B3A8}\normalsize{\textsf{i will ɓɛ likɛlɣ ruɖɛ tɔ ɣɔu uŋlɛss spɛciƒic pɛɔplɛ. Ɓut i caŋ lash ɔut ɛasilɣ ɛʋɛŋ iƒ ɣɔu makɛ a jɔkɛ. }}}}$
 
-<img width="400" height="22" alt="IMG_5612" src="https://github.com/user-attachments/assets/d606605f-9e3f-4d57-9cc8-097a919af2ad" />
+<img width="400" height="22" alt="IMG_5612" src="https://github.com/user-attachments/assets/63fa024f-3f07-44bd-8423-8cedbf460773" />
+
 
 # ${{\color{47B3A8}\normalsize{\textsf{✦. ɓɛƒɔrɛ ɣɔu iŋtɛract.}}}}$
 
@@ -24,7 +27,8 @@ ${{\color{47B3A8}\normalsize{\textsf{iƒ i makɛ ɣɔu umcɔmƒɔrtaɓlɛ thɛŋ
 
 ${{\color{47B3A8}\normalsize{\textsf{i haʋɛ a girlƒriɛŋɖ. Shɛ's alsɔ a hɛaɖmatɛ ɔŋ thɛ sɣs. Hɛr ŋamɛ's Mikɔtɔ. Sɔ ɖɔŋ't ƒlirt with mɛ.}}}}$
 
-<img width="400" height="22" alt="IMG_5612" src="https://github.com/user-attachments/assets/0caf5407-1328-405d-967a-555dee207ee5" />
+<img width="400" height="22" alt="IMG_5612" src="https://github.com/user-attachments/assets/236f8958-8e23-43f8-a556-572d46aeba1e" />
+
 
 # ${{\color{47B3A8}\normalsize{\textsf{✦. Ɖɔ ŋɔt iŋtɛract.}}}}$
 
